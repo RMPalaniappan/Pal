@@ -1,0 +1,2 @@
+# Pal
+Offshore outsourcing
